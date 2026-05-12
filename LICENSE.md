@@ -1,4 +1,4 @@
-# 
+# new Executor for geckoterminal sniper bot | simulation-mode & meme-coin-scanning is the best geckoterminal sniper bot, featuring simulation-mode and meme-coin-scanning. Fast,
 
 
 
